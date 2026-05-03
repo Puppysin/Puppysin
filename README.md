@@ -38,7 +38,7 @@ games i like: cyberpunk2077, south of midnight, cult of the lamb, undertale/delt
 
 ♡
 
-extras: i am VERY happy with my fiance and other queer platonic partners, please do NOT genuinely flirt with me, jokes are fine, but if you genuinely try to flirt with me I will block you. Im also very honest, if I feel disrespected or uncomfortable I will let you know immediately and communicate it, I expect the same in return! I am an Aphrodite Devotee, or at least a starting one, I am also poly, pan, and aroace.
+extras: i am VERY happy with my fiance and other queer platonic partners, please do NOT genuinely flirt with me, jokes are fine, but if you genuinely try to flirt with me I will block you. Im also very honest, if I feel disrespected or uncomfortable I will let you know immediately and communicate it, I expect the same in return! I am an Aphrodite Devotee, or at least a starting one, I am also poly, pan, and aroace. I am also currently in a psychosis, suffer from AudHD, schizophrenia, and all sorts of other shit I couldn't be bothered to look into, please be wary of that when interacting/trying to befriend me.
 
 ╰──────༺♡༻──────╯
 <img width="2048" height="154" alt="tumblr_3b1bacf0c679457c9f1007a75925b481_84a2e38c_2048" src="https://github.com/user-attachments/assets/e8ee956a-7f65-4713-b6d7-a87665316b8c" />
