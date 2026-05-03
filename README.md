@@ -15,6 +15,7 @@ If you cannot communicate, even the smallest things, please do not interact with
 PLEASE NOTE! if I have hidden you it is most likely because you made a stupid joke that was actually really disgusting, you're part of the DNI list, or you're associated with the mentioned formers.
 <img width="1600" height="120" alt="tumblr_25964f595afa32fed8b6ac130695f7ca_02ee544f_2048" src="https://github.com/user-attachments/assets/adbb3911-530d-41d3-9d9e-d378bd7d33ae" />
 ╭──────༺♡༻──────╮
+
 Name: Eunjeong or Eun/Rung
 age: 18
 pronouns: He/Its
