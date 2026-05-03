@@ -38,4 +38,7 @@ Games: Cult of The Lamb, | Roblox; Forsaken, Phighting, Royal High, Creatures of
 Shows: Transformers shows, She-Ra, Voltron, Big Top Burger, Pokemon, BOLT, Mune, Avatar franchise, TMNT franchise, Madness Combat( which, I guess is a show and a game so it's here twice like transformers ), South Park, more that I can't remember right now.
 
 Books/Comics/Webtoons: Wings of Fire, Warrior cats, Transformers comics, more that I can't remember rightnow.
+<img width="1200" height="70" alt="masterlist" src="https://github.com/user-attachments/assets/e8359456-6236-4c66-8837-c0cce475a79a" />
+Kinlist will go here when i decide to work on it!
+
 <img width="2048" height="400" alt="tumblr_d30e565e243a01f846b560dfca762a42_22a3019b_2048" src="https://github.com/user-attachments/assets/38f847d0-b9ed-4504-a2b0-217fe9730006" />
