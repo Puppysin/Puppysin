@@ -20,7 +20,7 @@ PLEASE NOTE! if I have hidden you it is most likely because you made a stupid jo
 
 <img width="1200" height="70" alt="about me" src="https://github.com/user-attachments/assets/4410593d-da0a-484e-b4f7-deb1107da18b" />
 
-i like: draw, sleep, preserve things, make things by hand, bake, warrior cats, wings of fire, mythology, archeology, bugs/insects.
+i like to draw, sleep, preserve things, make things by hand, bake, mythology, archeology, bugs/insects, etc.
 
 ♡
 
@@ -32,9 +32,9 @@ elaboration on people pleasers, I mean those who refuse to call something out or
 
 i am VERY happy with my fiance and other queer platonic partners, please do NOT genuinely flirt with me, jokes are fine, but if you genuinely try to flirt with me I will block you. Im also very honest, if I feel disrespected or uncomfortable I will let you know immediately and communicate it, I expect the same in return! I am an Aphrodite Devotee, or at least a starting one, I am also poly, pan, and aroace. I am also currently in a psychosis, suffer from AudHD, Bipolar, schizophrenia, and all sorts of other shit I couldn't be bothered to look into, please be wary of that when interacting/trying to befriend me.
 <img width="1200" height="70" alt="fandoms" src="https://github.com/user-attachments/assets/82a10f53-514e-4a95-9583-b04cee1b6ef4" />
-Games: Cult of The Lamb, | Roblox; Forsaken, Phighting, Royal High, Creatures of Sonaria, Asylum Life, Dandys World, WAAPP, Mermaid Isle |  Path of Titans, Slime Rancher, Stardew Valley, Madness Combat; Project Nexus, Costume Quest, The Freak Circus, Welcome Dear Human, Subnautica, BaTIM, FNaF, REPO, A Date With Death, ERROR143, Lethal Company, The Isle, The Wings of Dawn, Undertale/Deltarune, South of Midnight, STRAY, 
+Games: Cult of The Lamb, | Roblox; Forsaken, Phighting, Royal High, Creatures of Sonaria, Asylum Life, Dandys World, WAAPP, Mermaid Isle |  Path of Titans, Slime Rancher, Stardew Valley, Madness Combat; Project Nexus, Costume Quest, The Freak Circus, Welcome Dear Human, Subnautica, BaTIM, FNaF, REPO, A Date With Death, ERROR143, Lethal Company, The Isle, The Wings of Dawn, Undertale/Deltarune, South of Midnight, STRAY, more that I can't remember right now.
 
-Shows: Transformers shows, She-Ra, Voltron, Big Top Burger, Pokemon, BOLT, Mune, Avatar franchise, TMNT franchise, Madness Combat( which, I guess is a show and a game so it's here twice like transformers ), South Park, 
+Shows: Transformers shows, She-Ra, Voltron, Big Top Burger, Pokemon, BOLT, Mune, Avatar franchise, TMNT franchise, Madness Combat( which, I guess is a show and a game so it's here twice like transformers ), South Park, more that I can't remember right now.
 
-Books/Comics/Webtoons: Wings of Fire, Warrior cats, Transformers comics,
+Books/Comics/Webtoons: Wings of Fire, Warrior cats, Transformers comics, more that I can't remember rightnow.
 <img width="2048" height="400" alt="tumblr_d30e565e243a01f846b560dfca762a42_22a3019b_2048" src="https://github.com/user-attachments/assets/38f847d0-b9ed-4504-a2b0-217fe9730006" />
