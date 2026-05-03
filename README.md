@@ -39,6 +39,99 @@ Shows: Transformers shows, She-Ra, Voltron, Big Top Burger, Pokemon, BOLT, Mune,
 
 Books/Comics/Webtoons: Wings of Fire, Warrior cats, Transformers comics, more that I can't remember rightnow.
 <img width="1200" height="70" alt="masterlist" src="https://github.com/user-attachments/assets/e8359456-6236-4c66-8837-c0cce475a79a" />
-Kinlist will go here when i decide to work on it!
+Kinlist!
 
+Transformers:
+
+Swerve
+
+Starscream
+
+Whirl
+
+Rodimus
+
+Blurr
+
+Ratchet
+
+TFA Blitzwing
+
+TFA bumblebee
+
+Rung
+
+Nickel
+
+MLP:
+
+Pinkie Pie
+
+Fluttershy
+
+Warrior Cats:
+
+HollyLeaf
+
+IvyPool
+
+BrightHeart
+
+LeafPool
+
+Madness Combat:
+
+Deimos
+
+2BDamned
+
+Auditor
+
+Wings of Fire:
+
+Glory
+
+Tsunami
+
+Peril
+
+Qibli
+
+Roblox:
+
+Shuriken ( Phighting )
+
+Rocket ( Phighting ) 
+
+007n7 ( Forsaken and others )
+
+Shedletsky ( Forsaken and others )
+
+Builderman ( Forsaken and others )
+
+Guest1337 ( Forsaken and others )
+
+Chance ( Forsaken )
+
+C00lkidd ( Forsaken and others )
+
+Sprout ( Dandys World )
+
+Pebble ( Dandys World ) 
+
+The Freak Circus:
+
+Harlequinn 
+
+Doctor
+
+Undetale/Deltarun:
+
+Ink Sans
+
+Spamton
+
+Tenna
+
+MORE COMING SOON! THIS IS NOT FINISHED!
 <img width="2048" height="400" alt="tumblr_d30e565e243a01f846b560dfca762a42_22a3019b_2048" src="https://github.com/user-attachments/assets/38f847d0-b9ed-4504-a2b0-217fe9730006" />
