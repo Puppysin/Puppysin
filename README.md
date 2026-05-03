@@ -1,1 +1,2 @@
- ![gif]((https://64.media.tumblr.com/3d3bf7f63172727e7c0964d507748570/0ffb473bc1799547-6e/s400x600/47bd0d84ee3920f711a196f96691683e4087012c.gifv))
+<img width="336" height="75" alt="tumblr_3d3bf7f63172727e7c0964d507748570_47bd0d84_400" src="https://github.com/user-attachments/assets/c7e8a56a-da13-47bf-bd17-5571b1a3d804" />
+
