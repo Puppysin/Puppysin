@@ -19,16 +19,27 @@ PLEASE NOTE! if I have hidden you it is most likely because you made a stupid jo
 Name: Eunjeong or Eun/Rung
 age: 18
 pronouns: He/Its
+
 ♡
+
 i like: draw, sleep, preserve things, make things by hand, bake, warrior cats, wings of fire, mythology, archeology, bugs/insects.
+
 ♡
+
 Dislike: "people pleasers", people who can't take no for answer, copycats that copy out of envy/jealousy/bitter reasons, just in general people who act like they have no common sense and are cruel for no reason.
+
 elaboration on people pleasers, I mean those who refuse to call something out or stand up when someone is doing smth absolutely HORRENDOUS and claim its bc theyre ppl pleasers. idm actual people pleasers
+
 ♡
+
 some movies/shows i like: transformers franchise, BOLT, Voltron, Big Top Burger, Mune, Lego Monkie Kid, TMNT franchise, south park, AVATAR franchise, etc.
+
 games i like: cyberpunk2077, south of midnight, cult of the lamb, undertale/deltarune, horror games, creatures of sonaria, the isle, forsaken, phighting, path of titans, STRAY, etc.
+
 ♡
+
 extras: i am VERY happy with my fiance and other queer platonic partners, please do NOT genuinely flirt with me, jokes are fine, but if you genuinely try to flirt with me I will block you. Im also very honest, if I feel disrespected or uncomfortable I will let you know immediately and communicate it, I expect the same in return! I am an Aphrodite Devotee, or at least a starting one, I am also poly, pan, and aroace.
+
 ╰──────༺♡༻──────╯
 <img width="2048" height="154" alt="tumblr_3b1bacf0c679457c9f1007a75925b481_84a2e38c_2048" src="https://github.com/user-attachments/assets/e8ee956a-7f65-4713-b6d7-a87665316b8c" />
 ✶⋆.˚ PLEASE INT! If you share any of my interests! If you want to cuddle or hide with me I don't mind! I might be a little awkward or standoffish but if you just want to chat feel free to! I like meeting new people despite my social awkwardness ^_^
