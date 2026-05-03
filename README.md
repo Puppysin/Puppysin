@@ -1,5 +1,5 @@
 <img width="2048" height="530" alt="tumblr_c1df2b7c4fe7287aecea40fa56043972_61bed46d_2048" src="https://github.com/user-attachments/assets/00a546f6-4ba4-400d-b25f-dd2e10864277" />
-𐔌՞. .՞𐦯 Hii! I'm Eun. He/Its You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚
+𐔌՞. .՞𐦯 Hii! I'm Puppy! He/Its You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚
 
 
 <img width="1200" height="70" alt="rules" src="https://github.com/user-attachments/assets/f4445795-3688-4b1e-9d3a-01e6a1dd1761" />
