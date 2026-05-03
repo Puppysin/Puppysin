@@ -16,7 +16,7 @@ If you cannot communicate, even the smallest things, please do not interact with
 
 PLEASE NOTE! if I have hidden you it is most likely because you made a stupid joke that was actually really disgusting, you're part of the DNI list, or you're associated with the mentioned formers.
 
-✶⋆.˚ PLEASE INT! If you share any of my interests! If you want to cuddle or hide with me I don't mind! I might be a little awkward or standoffish but if you just want to chat feel free to! I like meeting new people despite my social awkwardness ^_^
+✶⋆.˚ PLEASE INT! If you share any of my interests! If you want to cuddle or hide with me I don't mind! I might be a little awkward or standoffish but if you just want to chat feel free to! I like meeting new people despite my social awkwardness ^O^
 
 <img width="1200" height="70" alt="about me" src="https://github.com/user-attachments/assets/4410593d-da0a-484e-b4f7-deb1107da18b" />
 
