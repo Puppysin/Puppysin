@@ -1,5 +1,5 @@
 <img width="2048" height="530" alt="tumblr_c1df2b7c4fe7287aecea40fa56043972_61bed46d_2048" src="https://github.com/user-attachments/assets/00a546f6-4ba4-400d-b25f-dd2e10864277" />
-𐔌՞. .՞𐦯 Hii! I'm Puppy! He/Its You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚
+𐔌՞. .՞𐦯 Hii! I'm Puppy! You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚
 
 
 <img width="1200" height="70" alt="rules" src="https://github.com/user-attachments/assets/f4445795-3688-4b1e-9d3a-01e6a1dd1761" />
@@ -31,7 +31,13 @@ elaboration on people pleasers, I mean those who refuse to call something out or
 
 ♡
 
-i am VERY happy with my fiance and other queer platonic partners, please do NOT genuinely flirt with me, jokes are fine, but if you genuinely try to flirt with me I will block you. Im also very honest, if I feel disrespected or uncomfortable I will let you know immediately and communicate it, I expect the same in return! I am an Aphrodite Devotee, or at least a starting one, I am also poly, pan, and aroace. I am also currently in a psychosis, suffer from AudHD, Bipolar, schizophrenia, and all sorts of other shit I couldn't be bothered to look into, please be wary of that when interacting/trying to befriend me.
+i am VERY happy with my fiance and other queer platonic partners, please do NOT genuinely flirt with me, jokes are fine, but if you genuinely try to flirt with me I will block you. 
+
+Im also very honest, if I feel disrespected or uncomfortable I will let you know immediately and communicate it, I expect the same in return! 
+
+I am an Aphrodite Devotee, or at least a starting one, I am also poly, pan, and aroace. 
+
+I am also currently in a psychosis, suffer from AudHD, Bipolar, schizophrenia, and all sorts of other shit I couldn't be bothered to look into, please be wary of that when interacting/trying to befriend me.
 <img width="1200" height="70" alt="fandoms" src="https://github.com/user-attachments/assets/82a10f53-514e-4a95-9583-b04cee1b6ef4" />
 Games: Cult of The Lamb, | Roblox; Forsaken, Phighting, Royal High, Creatures of Sonaria, Asylum Life, Dandys World, WAAPP, Mermaid Isle |  Path of Titans, Slime Rancher, Stardew Valley, Madness Combat; Project Nexus, Costume Quest, The Freak Circus, Welcome Dear Human, Subnautica, BaTIM, FNaF, REPO, A Date With Death, ERROR143, Lethal Company, The Isle, The Wings of Dawn, Undertale/Deltarune, South of Midnight, STRAY, more that I can't remember right now.
 
