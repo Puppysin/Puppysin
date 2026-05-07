@@ -33,3 +33,139 @@
     </tr>
   </tbody>
 </table>
+
+<table>
+  <tbody>
+    <tr>
+      <td>
+       <h4 align="center">Games: Cult of The Lamb, | Roblox; Forsaken, Phighting, Royal High, Creatures of Sonaria, Asylum Life, Dandys World, WAAPP, Mermaid Isle |  Path of Titans, Slime Rancher, Stardew Valley, Madness Combat; Project Nexus, Costume Quest, The Freak Circus, Welcome Dear Human, Subnautica, BaTIM, FNaF, REPO, A Date With Death, ERROR143, Lethal Company, The Isle, The Wings of Dawn, Undertale/Deltarune, South of Midnight, STRAY, more that I can't remember right now.
+
+Shows: Transformers shows, She-Ra, Voltron, Big Top Burger, Pokemon, BOLT, Mune, Avatar franchise, TMNT franchise, Madness Combat( which, I guess is a show and a game so it's here twice like transformers ), South Park, more that I can't remember right now.
+
+Books/Comics/Webtoons: Wings of Fire, Warrior cats, Transformers comics, more that I can't remember rightnow.
+ </i></h4>
+      </td>
+      <td> <img width="300" height="300" src="" /> </td>
+    </tr>
+  </tbody>
+</table>
+
+<table>
+  <tbody>
+    <tr>
+      <td>
+       <h4 align="center"> Kinlist!
+
+Transformers:
+
+Swerve
+
+Starscream
+
+Whirl
+
+Rodimus
+
+Blurr
+
+Ratchet
+
+TFA Blitzwing
+
+TFA bumblebee
+
+Rung
+
+Nickel
+
+MLP:
+
+Pinkie Pie
+
+Fluttershy
+
+Warrior Cats:
+
+HollyLeaf
+
+IvyPool
+
+BrightHeart
+
+LeafPool
+
+Madness Combat:
+
+Deimos
+
+2BDamned
+
+Auditor
+
+Wings of Fire:
+
+Glory
+
+Tsunami
+
+Peril
+
+Qibli
+
+Roblox:
+
+Shuriken ( Phighting )
+
+Rocket ( Phighting ) 
+
+007n7 ( Forsaken and others )
+
+Shedletsky ( Forsaken and others )
+
+Builderman ( Forsaken and others )
+
+Guest1337 ( Forsaken and others )
+
+Chance ( Forsaken )
+
+Two Time ( Forsaken ) 
+
+C00lkidd ( Forsaken and others )
+
+Sprout ( Dandys World )
+
+Pebble ( Dandys World ) 
+
+The Freak Circus:
+
+Harlequinn 
+
+Doctor
+
+Undetale/Deltarune:
+
+Ink Sans
+
+Spamton
+
+Tenna
+
+Lego Monkie Kid:
+Mk
+
+Red Son
+
+Sun Wukong
+
+Macaque
+
+Tang
+
+Mei
+MORE COMING SOON! THIS IS NOT FINISHED!
+</i></h4>
+      </td>
+      <td> <img width="300" height="300" src="" /> </td>
+    </tr>
+  </tbody>
+</table>
