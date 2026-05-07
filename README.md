@@ -4,7 +4,7 @@
       <td>
        <h4 align="center"> 𐔌՞. .՞𐦯 Hii! I'm Puppy! You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚</i></h4>
       </td>
-      <td> <img width="300" height="300" src="<img width="250" alt="lala (1)" src="https://github.com/user-attachments/assets/6d570143-3f1f-4880-adac-11e5db67a8ca" />" /> </td>
+      <td> <img width="250" height="250" alt="lala (1)" src="https://github.com/user-attachments/assets/5a28bf52-58a0-46dc-9824-c4ce366bba08" /> </td>
     </tr>
   </tbody>
 </table>
