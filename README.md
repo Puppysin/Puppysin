@@ -2,7 +2,7 @@
   <tbody>
     <tr>
       <td>
-       <h4 align="center"> 𐔌՞. .՞𐦯 Hii! I'm Puppy! You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚</i></h4>
+       <h4 align="center"> 𐔌՞. .՞𐦯 Hii! I'm Eun! You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚</i></h4>
       </td>
       <td> <img width="250" height="250" alt="lala (1)" src="https://github.com/user-attachments/assets/5a28bf52-58a0-46dc-9824-c4ce366bba08" /> </td>
     </tr>
