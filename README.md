@@ -55,7 +55,7 @@ Books/Comics/Webtoons: Wings of Fire, Warrior cats, Transformers comics, more th
   <tbody>
     <tr>
       <td>
-       <h4 align="center"> Kinlist! Transformers: Swerve, Starscream, Whirl, Rodimus, Blurr, Ratchet, TFA Blitzwing, TFA bumblebee, Rung, Nickel | MLP: Pinkie Pie, Fluttershy | Warrior Cats: HollyLeaf, IvyPool, BrightHeart, LeafPool | Madness Combat: Deimos, 2BDamned, Auditor | Wings of Fire: Glory, Tsunami, Peril, Qibli | Roblox: Shuriken ( Phighting ), Rocket ( Phighting ), 007n7 ( Forsaken and others ), Shedletsky ( Forsaken and others ), Builderman ( Forsaken and others ), Guest1337 ( Forsaken and others ), Chance ( Forsaken ), Two Time ( Forsaken ), C00lkidd ( Forsaken and others ), Sprout ( Dandys World ), Pebble ( Dandys World ) | The Freak Circus: Harlequinn, Doctor | Undetale/Deltarune: Ink Sans, Spamton, Tenna | Lego Monkie Kid: Mk, Red Son, Sun Wukong, Macaque, Tang, Mei
+       <h4 align="center">Transformers: Swerve, Starscream, Whirl, Rodimus, Blurr, Ratchet, TFA Blitzwing, TFA bumblebee, Rung, Nickel | MLP: Pinkie Pie, Fluttershy | Warrior Cats: HollyLeaf, IvyPool, BrightHeart, LeafPool | Madness Combat: Deimos, 2BDamned, Auditor | Wings of Fire: Glory, Tsunami, Peril, Qibli | Roblox: Shuriken ( Phighting ), Rocket ( Phighting ), 007n7 ( Forsaken and others ), Shedletsky ( Forsaken and others ), Builderman ( Forsaken and others ), Guest1337 ( Forsaken and others ), Chance ( Forsaken ), Two Time ( Forsaken ), C00lkidd ( Forsaken and others ), Sprout ( Dandys World ), Pebble ( Dandys World ) | The Freak Circus: Harlequinn, Doctor | Undetale/Deltarune: Ink Sans, Spamton, Tenna | Lego Monkie Kid: Mk, Red Son, Sun Wukong, Macaque, Tang, Mei
 MORE COMING SOON! THIS IS NOT FINISHED!
 </i></h4>
       </td>
