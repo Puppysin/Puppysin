@@ -28,13 +28,14 @@ MORE COMING SOON! THIS IS NOT FINISHED!
 
 
 <p align="center">
-<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=313bjeiidk57degtmysnhsqhkzea&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313bjeiidk57degtmysnhsqhkzea&cover_image=true&theme=spotify-embed&show_offline=true&background_color=eeaae2&interchange=false&profanity=false&hide_remaster=false&bar_color=dfb8ff&bar_color_cover=false&mode=dark">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31rj4tf52cfkk7ioxnm5crmsdlcm&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
   </a>
+</p>
 
 <p align="center">
 <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260709220727.png" />   <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260710191101.png" />   <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260709221053.png" />  <img width="400" height="19" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/tumblr_a5c3fa8291cda91c252ce2ce1b2cdc94_f59cc09b_2048.png" /> <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260715190041.png" />
 
 <p align="center">
-<sub> “Hark! The herald angels sing, Glory to the King of Kings!” </sub>
+<sub> “You can't own me, I'm like a dolphin!” </sub>
 </p>
