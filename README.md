@@ -6,8 +6,6 @@
 <img width="1280" height="300" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled567_20261017160326.png" />
 
 
-**byi:**
-
 I am currently in a psychosis, suffer from AudHD and currently getting checked out for numerous other things, please be wary of that when interacting/trying to befriend me. I will not hesitate to put my foot down or get onto you about things either, I am a VERY blunt and honest person if you cannot handle this do not interact or try to befriend me I will not care to be sensitive for you. 
 I expect honesty and communication returned to me, if you cannot communicate and be honest with me DNI, I will not be holding your hand as a grown ass adult to communicate basic boundaries or needs to me we are grown and can act like grown adults.
 
