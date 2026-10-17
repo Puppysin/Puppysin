@@ -1,5 +1,5 @@
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/c0169084-6462-4d83-b905-1cd730cf6af4" />
-<img width="400" height="190" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/tumblr_c736543ed7ba168e69016df2ddd1ae97_712567c4_2048.png" />
+<img width="1280" height="190" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/tumblr_c736543ed7ba168e69016df2ddd1ae97_712567c4_2048.png" />
 
 𐔌՞. .՞𐦯 Hii! I'm Seven/Telamon! You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚
 
