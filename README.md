@@ -11,16 +11,7 @@ I expect honesty and communication returned to me, if you cannot communicate and
 
 <img width="1280" height="300" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled567_20261017160539.png" />
 
-
-**basic dni:**
-
-basic criteria (transphobic/homophobic/racist/sexist etc.)
-
-pro-/dark-/com- shippers + pro-fic/if you think fiction doesn't affect reality
-
-ppl who joke about rpe/diddy/the files
-
-weirdos in general. please just don't be weird (/neg) and we won't have problems
+PLEASE DNI! Rape fetishist, people with piss/scat/feet kinks [ BASICS of the kink scene is consent btw! hinting at you who is stalking and harassing me over this on my DNI ;) ], Zoophiles/Proshippers/Darkshippers/Pedophiles/Adult Attracted Minors/Minor Attracted Adults,etc. If you're under 18, If you cannot communicate, even the smallest things, please do not interact with me, I do not have the patience nor mental capacity to deal with you and stress over if I did anything wrong and have to BEG you to communicate with me or BEG you to communicate with other people. PLEASE NOTE! if I have hidden you it is most likely because you made a stupid joke that was actually really disgusting, you're part of the DNI list, I witnessed you do something I don't like/was shown you did something I don't like, or you're associated with the mentioned formers.
 
 
 <img width="1280" height="300" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled567_20261017160724.png" />
