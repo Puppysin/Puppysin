@@ -3,7 +3,7 @@
 
 𐔌՞. .՞𐦯 Hii! I'm Seven/Telamon! You will only find me on the 18+ servers, I feel uncomfortable being on the safe servers as a grown adult. ✶⋆.˚
 
-<img width="1280" height="190" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled567_20261017160326.png" />
+<img width="1280" height="300" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled567_20261017160326.png" />
 
 
 **byi:**
