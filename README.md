@@ -33,7 +33,7 @@ MORE COMING SOON! THIS IS NOT FINISHED!
   </a>
 
 <p align="center">
-<img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260709220727.png" />   <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260710191101.png" />   <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260709221053.png" />  <img width="400" height="19" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/tumblr_a5c3fa8291cda91c252ce2ce1b2cdc94_f59cc09b_2048.png" /> <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260715190041.png" />/
+<img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260709220727.png" />   <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260710191101.png" />   <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260709221053.png" />  <img width="400" height="19" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/tumblr_a5c3fa8291cda91c252ce2ce1b2cdc94_f59cc09b_2048.png" /> <img width="20" height="20" alt="image" src="https://file.garden/aPiOsUhCJDRhWIPs/Untitled850-20260715190041.png" />
 
 <p align="center">
 <sub> “Hark! The herald angels sing, Glory to the King of Kings!” </sub>
